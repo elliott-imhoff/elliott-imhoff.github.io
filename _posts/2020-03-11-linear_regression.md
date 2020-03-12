@@ -1,0 +1,77 @@
+---
+title: "Click this link for $10000000 AND a bigger penis!"
+published: true
+---
+
+Hah you fell for my click-bait headline.  It's ok, don't feel bad!  It understandably would be hard not to click on such an enticing link.  Now that I've tricked you into coming here, though, you might as well keep reading.
+
+Up until this point I’ve only blogged about my blog.  However, I've realized this sort of meta content might not be the best strategy for achieving my ultimate goal - becoming the lone blog celebrity of the world and being worshipped by all.  This post is my pivot.  I'm now in the business of churning out vapid, brain-dead blog posts to appeal to everyone. I've even sold out to coporate sponsors! Below you can find out the topic of my next (and soon to go viral) blog post.
+
+<br/>
+<br/>
+<br/>
+**You will never believe how interesting my next blog post is!  It's definitely worth scrolling through these following ads!**
+
+---
+
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+[ AD SPACE 1: AVAILABLE FOR RENT ]
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+[ AD SPACE 2: AVAILABLE FOR RENT ]
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+[ AD SPACE 3: AVAILABLE FOR RENT ]
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+[ AD SPACE 4: AVAILABLE FOR RENT ]
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+
+---
+
+*(The above ad spaces are available for rent.  Please email <contact@elliottimhoff.com> for pricing information)*
+<br/>
+<br/>
+<br/>
+<br/>
+
+### My Next Blog Post
+
+The other day at work, I got super excited when I came across some cool math. Then I realized everyone gets super excited when they come across cool math.  So obviously cool math would be some great #ViralContent. That's right my sweet readers.  In my next post, I'm taking a closer look at linear regression!!! Be sure to tell your friends!
