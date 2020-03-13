@@ -15,6 +15,10 @@ defaults:
       type: "posts"
     values:
       layout: "post"
+  - scope:
+      path: "images"
+    values:
+      image: true
 
 # projects:
 #   sort_by: pushed
